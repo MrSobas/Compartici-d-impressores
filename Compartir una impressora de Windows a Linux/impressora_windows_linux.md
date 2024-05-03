@@ -1,4 +1,4 @@
-## Video Demostratiu
+## Video Demostratiu Windows a Linux
 
 Pots veure el vídeo demostratiu fent clic al següent enllaç:
 
